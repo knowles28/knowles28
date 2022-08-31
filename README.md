@@ -7,4 +7,4 @@ I'm a junior software developer with a background in education.
 - 🍱 Huge fan of eating spicy food abroad
 - 📫 Reach me on LinkedIn: https://www.linkedin.com/in/jackknowles1/
 
-- 🇫🇷 N'hésitez pas à m'envoyer un message en français ! 
+- 🇫🇷 N'hésitez pas à m'envoyer un message en français 🥐
